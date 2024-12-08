@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on network security projects, vulnerability research, and developing security tools to improve defenses. I’m particularly interested in working on securing networks, detecting vulnerabilities, and contributing to security assessments.
 
-📫 How to reach me: You can reach me via email at christonmitchell@example.com or connect with me on LinkedIn here :https://www.linkedin.com/in/christon-mitchell-581284287/.
+📫 How to reach me: You can reach me via email at christonmitchell04@gmail.com or connect with me on LinkedIn here :https://www.linkedin.com/in/christon-mitchell-581284287/.
 
 😄 Pronouns: He/Him
 
